@@ -1,1 +1,0 @@
-# S-Alaninec1lykr
